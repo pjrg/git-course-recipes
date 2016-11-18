@@ -9,7 +9,9 @@
 - 2 tablespoons Worcestershire sauce
 - 1/8 teaspoon cayenne pepper
 - 2 cloves garlic, minced 
-- tomato and salad
+- 2 slices of cheeze
+- 1 tomato
+- salad
 
 ## Preparation
 
@@ -19,4 +21,4 @@ In a large bowl, mix the ground beef, egg, bread crumbs, evaporated milk, Worces
 
 Lightly oil the grill grate. Grill patties 5 minutes per side, or until well done.
 
-Add tomato and salad to your tasting in layers.
+Add tomato and salad to your tasting in layers. Add the Layer slices of cheese on top of hamburger on a sandwich.
