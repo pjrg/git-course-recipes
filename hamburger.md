@@ -11,6 +11,7 @@
 - 2 cloves garlic, minced 
 - 2 slices of cheeze
 - 1 tomato
+- 1 slice bacon
 - salad
 
 ## Preparation
